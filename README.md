@@ -1,1 +1,1 @@
-Engagement in sexual intercourse even possibly leading up to a divine union.
+Engagement in sexual intercourse or pertaining even possibly leading up to a divine union.
